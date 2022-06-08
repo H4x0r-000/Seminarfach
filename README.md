@@ -1,0 +1,2 @@
+# Seminarfach
+irgend ne Beschreibung
